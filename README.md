@@ -2,7 +2,7 @@
 
 ## I'm a developer, passionate about video games and web's programming.
 
-- Looking for an alternation
+- Looking for a work-study programme
 
 - My degrees :
   - BUT IT, specializing in application development
